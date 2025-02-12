@@ -1,6 +1,6 @@
 - 👋 Hi, I’m AlekKizyaka (it's nickmname)
 - 👀 I’m interested in kode)
-- 🌱 I’m currently learning ..tfhjndf
+- 🌱 I’m currently learning ..jhgfyghjk
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...gtfrgyh
 - 😄 Pronouns: .)ijfj
