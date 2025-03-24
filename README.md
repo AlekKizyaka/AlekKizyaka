@@ -2,7 +2,7 @@
 - 👀 I’m interested in kode)
 - 🌱 I’m currently learning ..dfyjynf
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...wqedxccyliouliojk
+- 📫 How to reach me ...bvfdsrwerthjkl
 - 😄 Pronouns: .)ijfj
 - ⚡ Fun fact:)))oprfgviuejf
 AlekKizyaka/AlekKizyaka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
